@@ -3,7 +3,7 @@ Minimalist. Aesthetic. Quiet. Our brand is inspired by urban resilience, emphati
 # LOUNGER — Brand Documentation
 
 > **Men’s outerwear brand from Saint Petersburg, Russia.**  
-> Lounger is not clothing. It is a *vibe* created by men who build themselves, their families, and their space.
+> Lounger is not clothing. It is a *vibe* created by men who build themselves, their kin, and their space.
 
 ---
 
@@ -11,7 +11,7 @@ Minimalist. Aesthetic. Quiet. Our brand is inspired by urban resilience, emphati
 
 **Core Statement:**  
 > Lounger is a brotherhood of creators.  
-> The brand crafts garments for men who create — themselves, their family, their space, and their future.
+> The brand crafts garments for men who create — themselves, their kin, their space, and their future.
 
 **Philosophy:**  
 Lounger rejects loud clichés of “modernity,” “style,” and “quality.”  
