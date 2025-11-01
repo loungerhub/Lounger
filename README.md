@@ -6,7 +6,7 @@ A microbrand project in the making — designing **functional menswear** that fe
 
 ## 🧥 About LOUNGER
 
-Minimalist. Technical. Quiet. Our brand is inspired by urban resilience, modular design, and neutral expression.
+Minimalist. Aesthetic. Quiet. Our brand is inspired by urban resilience, emphatic design, and smart expression.
 
 We believe:
 - 🏙 Clothes should *adapt* to the city, not compete with it.
