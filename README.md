@@ -1,10 +1,10 @@
-# 👋 Hi, I'm Denis — founder of **URBAN SHELL**
+# 👋 Hi, I'm Tatiana — founder of **LOUNGER**
 
 A microbrand project in the making — designing **functional menswear** that feels like an extension of your environment, not decoration.
 
 > **"Right to be called a Lounger."**
 
-## 🧥 About URBAN SHELL
+## 🧥 About LOUNGER
 
 Minimalist. Technical. Quiet. Our brand is inspired by urban resilience, modular design, and neutral expression.
 
